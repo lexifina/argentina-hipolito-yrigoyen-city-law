@@ -1,0 +1,1 @@
+Artículo 1°.- Declárese de Interés Educativo Municipal, el proyecto de Recuperación Histórica de la Casa donde funciona del Centro de Estudiantes Universitarios de Henderson en la ciudad de La Plata (CEUH).------
