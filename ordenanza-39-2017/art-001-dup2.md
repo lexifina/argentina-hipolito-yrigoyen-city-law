@@ -1,0 +1,2 @@
+Art.1°): OBJETO. El INSTITUTO se compromete a prestar la asistencia financiera para la CONSTRUCCION DE DIEZ (10) VIVIENDAS de 2 (dos) dormitorios de una superficie de 58 m2 cada una; en el Partido de HIPOLlTO
+YRIGOYEN en el marco del Decreto Ley Provincial N° 9104/78 Y sujeto a Resolución I.V.B.A. N° 919/92, 4522/00, sus ampliatorias, supletorias y/o modificatorias que el MUNICIPIO declara conocer y aceptar. Las actuaciones del presente financiamiento deberán correr por Expte. N° 2416-3795/2016.-
