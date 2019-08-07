@@ -1,0 +1,1 @@
+Artículo 1°): OTORGUESE con retroactividad al 1° de mayo de 2019, un AUMENTO SALARIAL para el personal permanente y temporario municipal, personal jerárquico, Departamento Ejecutivo y Honorable Concejo Deliberante, en un porcentaje del diez (10) por ciento (%) con base en el sueldo básico del mes de enero de 2019.-
