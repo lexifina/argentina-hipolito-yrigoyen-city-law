@@ -1,0 +1,3 @@
+ART. 11 bis: Los valores fijados en el presente Capítulo podrán ser actualizados anualmente por el Departamento Ejecutivo Municipal, en función de la variación de los siguientes valores y en las siguientes proporciones: -Cincuenta por ciento (50%) del salario básico de Categoría Categoría17 30 horas de la escala salarial aplicada en la Municipalidad de Hipólito Yrigoyen. -Cincuenta por ciento (50%) del precio del litro de gas oíl grado 2 del proveedor habitual del último día con precio. Para este cálculo seconsideraran los valores vigentes en el mes de septiembre de cada año. La aplicación del presente artículo, requerirá de la correspondiente aprobación del Honorable Concejo Deliberante. -
+CAPITULO III
+TASA POR HABILITACION DE COMERCIO E INDUSTRIA.-

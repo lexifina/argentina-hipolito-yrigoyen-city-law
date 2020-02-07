@@ -1,0 +1,1 @@
+ART. 51 BIS: Quedan exceptuados del pago de contribuciones de mejoras en un 100% los jubilados y pensionados que perciben como único ingreso familiar el haber mínimo jubilatorio, que habiten la vivienda única familiar y que la misma revista el carácter de permanente y/o que sea propietario de vehículo automotor con una antigüedad de modelo anterior al año 2015.
