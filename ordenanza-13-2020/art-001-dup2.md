@@ -1,0 +1,1 @@
+Articulo 1°): OTORGUESE con retroactividad al 1° de Marzo de 2020, un AUMENTO SALARIAL para el personal permanente y temporario municipal, personal jerárquico, Departamento Ejecutivo y Honorable Concejo Deliberante, en un porcentaje del seis (06) por ciento (%) con base en el sueldo básico del mes de Diciembre de 2019.-
