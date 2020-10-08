@@ -1,0 +1,1 @@
+ARTÍCULO 1: Adherir al Decreto de Necesidad y Urgencia Nº 677/2020 que prorroga las medidas de “distanciamiento social, preventivo y obligatorio” y “aislamiento social preventivo y obligatorio” desde el 17 de Agosto del corriente año.
