@@ -1,0 +1,1 @@
+ARTICULO 1: Establecer, de conformidad con el art. 3 de la Resolución nº 3264/2020 de MJGM, el alcance de la Fase 4 establecida en el Anexo I de dicha resolución, disponiendo la habilitación de las actividades y servicios listados desde la numeración 1 a 120 inclusive, como así también de las actividades y servicios declarados esenciales por el DNU 956/2020.
