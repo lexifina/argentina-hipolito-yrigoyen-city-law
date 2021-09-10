@@ -1,0 +1,1 @@
+Artículo 1º) OTORGUESE con retroactividad al 1º de Mayo de 2021, un AUMENTO SALARIAL para el personal permanente y temporario municipal, personal jerárquico, Departamento Ejecutivo, y Honorable Concejo Deliberante, en un porcentaje del seis (6) por ciento (%) con base en el sueldo básico del mes de Diciembre de 2020, conforme presupuesto del ejercicio en curso.-
