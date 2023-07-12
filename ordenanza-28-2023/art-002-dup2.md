@@ -1,0 +1,4 @@
+ARTICULO 2º)-: COMUNIQUESE, Regístrese, Publíquese y Archívese.-
+-------------DADO EN LA SALA DE SESIONES DEL HONORABLE CONCEJO DELIBERANTE DE HIPOLITO YRIGOYEN A LOS VEINTICUATRO DÍAS DEL MES DE MAYO DE DOS MIL VEINTITRES.---------------------------------------------------------
+Dra. Victoria Toledo Adriana García
+Secretaria HCD Presidente HCD
