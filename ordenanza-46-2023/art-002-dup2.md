@@ -1,0 +1,5 @@
+ARTÍCULO 2°.- COMUNÍQUESE, publíquese y cumplido archívese.-
+-------------DADO EN LA SALA DE SESIONES DEL HONORABLE CONCEJO DELIBERANTE DE HIPOLITO YRIGOYEN A LOS TREINTA DÍAS DEL MES DE AGOSTO DE DOS MIL VEINTITRÈS.---------------------------------------------------
+Dra. Victoria Toledo Adriana García
+Secretaria Presidente
+Honorable C. Deliberante Honorable C. Deliberante
