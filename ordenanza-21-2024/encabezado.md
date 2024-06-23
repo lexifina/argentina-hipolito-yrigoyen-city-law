@@ -1,0 +1,11 @@
+Ordenanza Nº21/2024
+Ordenanza Nº 21/2024
+Hipólito Yrigoyen, 24/04/2024
+ORDENANZA
+Visto: Las actuaciones administrativas llevadas a cabo para la concreción de las obras de pavimento en nuestra Comunidad, conforme los Artículos 11 y 12 de la Ordenanza Complementaria del Presupuesto de Gastos vigente, por el significado y puesta en valor que tienen para la población, para propender el acceso de la mejora de la calidad de vida de nuestros vecinos,-
+Considerando: Que estas obras de pavimentación representan una valorización de los inmuebles que han sido beneficiados por la misma.-
+Que resulta equitativo que la Comuna arbitre los medios y mecanismos legales a fin de propender al recupero de la mentada valorización que se genera sobre los inmuebles por causas ajenas al esfuerzo de los propietarios, como lo es la construcción del pavimento, como obra realizada por el sector público con el débito de toda la colectividad .-
+Que la contribución de mejoras como herramienta de recupero tiene naturalmente consecuencias distributivas sobre el desarrollo urbanístico, ya que las sumas reintegradas por el mayor valor de los inmuebles, serian destinadas a nuevas obras de pavimentación en beneficio de otros vecinos.-
+Que es importante mencionar que en el país las atribuciones para generar tributos en los niveles subnacionales pueden ser muy diferentes entre las distintas jurisdicciones, como consecuencia principalmente de las capacidades que le otorga la Constitución Nacional a las provincias en la creación de tributos y en la determinación de la autonomía financiera municipal.-
+Que se proyecta continuar con la pavimentación de aquellas arterias que de acuerdo a las condiciones presupuestarias se dispongan desde el Departamento Ejecutivo.-
+ORDENANZA
