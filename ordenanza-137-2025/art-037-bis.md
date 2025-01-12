@@ -1,0 +1,1 @@
+ART. 37 bis: Por disposición de lo sancionado por la Ley No 13.010 y Decreto No 226 de las Provincia de Buenos Aires, el Municipio cobrara la patente de los automotores que transfiera la provincia para los modelos y años que disponga. La escala de valuación, alícuota y montos mínimos serán los que fije la Provincia de Buenos Aires según su Ley Impositiva Vigente.

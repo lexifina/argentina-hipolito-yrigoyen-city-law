@@ -1,0 +1,3 @@
+ART.10 bis: Los contribuyentes que dentro de los meses de enero y el último día hábil de marzo abonen por adelantado las tasas establecidas en los art. 2, 3 y 4, correspondiente al primer semestre del año, gozaran de un descuento del diez por ciento (10%); igualmente se aplicara el mismo descuento para aquellos contribuyentes que antes del último día hábil de Septiembre abonen por adelantado el segundo semestre del año.
+Si el contribuyente dentro de los meses de enero y el último día hábil de marzo optare por abonar por adelantado la totalidad del año el descuento ascenderá al veinte por ciento (20%).
+Para obtener este descuento la propiedad debe estar al día.

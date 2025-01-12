@@ -1,0 +1,3 @@
+ART. 37 ter: Los titulares o poseedores de automotores a que hace referencia el art.37 Bis, que acrediten el cumplimiento de las obligaciones relativas a la contratación de seguro de responsabilidad civil hacia terceros y a la realización de la verificación técnica vehicular, ambos con la debida actualización al vencimiento de las cuotas serán beneficiados con una bonificación de hasta un cincuenta por ciento (50%) del valor de la misma. A tal efecto será necesario presentar la documentación original ante las oficinas municipales pertinentes. -
+CAPITULO XIV
+TASA POR CONTROL DE MARCAS Y SEÑALES
