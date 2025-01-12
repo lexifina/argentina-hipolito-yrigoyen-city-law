@@ -1,0 +1,2 @@
+Artículo 1.- Las obligaciones de carácter fiscal consistentes en tasas, derechos y demás contribuciones que la Municipalidad de HIPÓLITO YRIGOYEN establezca, se regirán por las disposiciones de esta Ordenanza Fiscal o de Ordenanzas Especiales. El monto de las mismas será establecido en base a las prescripciones que se determinen para cada gravamen y las alícuotas que fijen las respectivas Ordenanzas Impositivas anuales. -
+MÉTODOS DE INTERPRETACIÓN.
