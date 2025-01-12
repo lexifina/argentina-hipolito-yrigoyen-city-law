@@ -1,0 +1,3 @@
+Artículo 1º) Rectifiquese el artículo primero del Decreto nro. 759/24,y deberá quedar redactado de la siguiente manera: ARTICULO 1) otórguese
+con retroactividad al 1° de Julio de 2024, un AUMENTO SALARIAL para el
+personal permanente y temporario municipal, personal jerárquico, Departamento Ejecutivo y Honorable Concejo Deliberante, en un porcentaje del quince (15) porciento (%), c base en el sueldo básico del mes de diciembre de 2023, además del 15 % para el mes de Julio ya fijado Conforme presupuesto 2023, representando un aumento de un treinta (30) por ciento (%), más una suma de $ 10.000. al básico de cada categoría en un régimen de 6 hs y su proporcional en un régimen de 8 hs
