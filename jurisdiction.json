@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-hipolito-yrigoyen",
+  "code": "AR-B-HIPOLITO-YRIGOYEN",
+  "name": "Hipólito Yrigoyen",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-hipolito-yrigoyen-city-law",
+  "build": "built: municipal ordinances (197 ordinances, 197 versions) from https://sibom.slyt.gba.gob.ar/cities/61",
+  "language": "es",
+  "sources": 1
+}
